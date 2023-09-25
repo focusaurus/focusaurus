@@ -16,4 +16,4 @@ My career has focused on building business applications on the web. I've been do
 - Mostly left twitter behind but for 13 or so years I was [@focusaurus](https://twitter.com/focusaurus)
 ## Open to Work!
 
-I'm currently looking for a position. Feel free to reach out if you are highering.
+I'm currently looking for a position. Feel free to reach out if you are hireing.
